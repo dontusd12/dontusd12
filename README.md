@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on community projects
 - 🎸 I love rock,punk,metal,heavy metal,black metal,etc...
 - 👾 i love the boomer shooters,like doom or quake,i like pixelart games
+- 🛠 i am currently working on doom wads
 - 🥔 My PC is a potato
 - 📫 you can reach me on discord: dontusd12#0361
 
